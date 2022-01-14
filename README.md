@@ -1,1 +1,0 @@
-# media-disorder-of-insanity
